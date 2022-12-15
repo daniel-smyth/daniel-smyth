@@ -1,5 +1,3 @@
-Coding for the kicks
-
 It's all about the coffee ☕️
 
 - 🔭  Currently at TigerSpider
