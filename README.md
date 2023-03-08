@@ -1,4 +1,4 @@
 It's all about the coffee ☕️
 
-- 🔭  Currently at TigerSpider
+- 🔭  Currently at Blinq
 - 📫  danielsmyth2011@gmail.com
