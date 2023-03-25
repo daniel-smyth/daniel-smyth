@@ -1,4 +1,4 @@
-It's all about the coffee ☕️
+Coding Concoctions Brewed with Coffee and Passion ☕️ 🚀
 
-- 🔭  Currently at Blinq
-- 📫  danielsmyth2011@gmail.com
+- 🔭 Innovating at Blinq
+- 📧 Reach out: danielsmyth2011@gmail.com
