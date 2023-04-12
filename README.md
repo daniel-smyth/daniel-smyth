@@ -1,4 +1,4 @@
 Coding concoctions
 
-- 🔭 Innovating at Blinq
+- 🏡 Blinq
 - 📧 Reach out: danielsmyth2011@gmail.com
